@@ -18,7 +18,8 @@ I'm an introvert!! ( pls remember D: )
 
 MY BIRTHDAY!! : May 30th :D
 
-<img width="735" height="416" alt="image" src="https://github.com/user-attachments/assets/88589ff0-ba71-4ac5-9524-07542dc380" />
+<img width="735" height="416" alt="image" src="https://github.com/user-attachments/assets/1137dd60-1ea9-4798-9fb3-f1b9df54ba5d" />
+
 
 ── ⋆⋅☆⋅⋆ ──
 
