@@ -14,7 +14,7 @@ don't ask about my age please, i'll tell you if i feel comfortable!!
 
 I'm an introvert!! ( pls remember D: ) 
 
-!!-> I am interest in a lot of things like drawing, listening to music,..etc
+!!-> I am interest in a lot of things like drawing, listening to music, playing minesweeper,..etc
 
 MY BIRTHDAY!! : May 30th :D
 
